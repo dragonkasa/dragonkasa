@@ -1,8 +1,12 @@
 <p align="center">
+<img src="https://media.discordapp.net/attachments/1130678966383030272/1204191698046033970/sparkles1.gif?ex=65d3d5e9&is=65c160e9&hm=0151dbb952c7aba79570f9668a3b6c5ce6c8732c40a98a25e4f961d1340dc42f&="/>
+</p>
 
-  <img src="https://media.discordapp.net/attachments/1130678966383030272/1204178607233306624/sparkles3.gif?ex=65d3c9b8&is=65c154b8&hm=dfa3ff8ab4855b7964d8acd8def0e36e0431bef3807f3d56ce9dc6870e5ee857&="/>
-<img src="https://media.discordapp.net/attachments/1130678966383030272/1202013673594564708/static-assets-upload9470332022805612090.png?ex=65cbe978&is=65b97478&hm=8332b7f0a2f2d91f5bc6fd728978658de52f918f746e60af6ad7e256064a818f&=&format=webp&quality=lossless"/>
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1130678966383030272/1204190066604507196/obraz_2024-02-05_232122170.png?ex=65d3d464&is=65c15f64&hm=37099f7fd0240306d9b19f39e8439f9181e3d35fb5dbe9cc5e84a6ade8f7a50b&=&format=webp&quality=lossless" width="300" height="300"/>
+</p>
 
-<img src="https://media.discordapp.net/attachments/1130678966383030272/1204178607233306624/sparkles3.gif?ex=65d3c9b8&is=65c154b8&hm=dfa3ff8ab4855b7964d8acd8def0e36e0431bef3807f3d56ce9dc6870e5ee857&="/>
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1130678966383030272/1204191698046033970/sparkles1.gif?ex=65d3d5e9&is=65c160e9&hm=0151dbb952c7aba79570f9668a3b6c5ce6c8732c40a98a25e4f961d1340dc42f&="/>
 </p>
 
