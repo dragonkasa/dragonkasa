@@ -1,12 +1,12 @@
 <p align="center">
-<img src="https://files.catbox.moe/yb0x21.gif"/>
+<img src="https://pixelsafari.neocities.org/dividers/hangingstars.gif"/>
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/wd47gl.webp" width="300" height="300"/>
+<img src="https://files.catbox.moe/xt3e17.webp" width="381" height="328"/>
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/yb0x21.gif"/>
+<img src="https://pixelsafari.neocities.org/dividers/dango.png"/>
 </p>
 
