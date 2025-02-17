@@ -1,12 +1,23 @@
 <p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/checkers.gif"/>
+<img src="https://pixelsafari.neocities.org/dividers/bluestarribbon2.gif"/>
 </p>
 
 <p align="center">
-<img src="https://static.wikia.nocookie.net/cookierunkingdom/images/6/60/Pitaya_dragon_illustration.png/revision/latest/scale-to-width-down/1000?cb=20230519211430" height="400"/>
+<img src="https://pixelsafari.neocities.org/favicon/animals/ungulate/sheep.gif" height="40"/><img src="https://files.catbox.moe/3bbirl.png" height="300"/><img src="https://pixelsafari.neocities.org/favicon/animals/ungulate/sheep.gif" height="40"/>
 </p>
 
 <p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/checkers.gif"/>
+<img src="https://pixelsafari.neocities.org/dividers/flowerfield.gif"/>
+</p>
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/sheep.gif"/>
+</p>
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/stamps/more/clovers.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/octopuses.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/tiger.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/dj.png"/>
 </p>
 
