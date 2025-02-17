@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="https://store5.gofile.io/download/web/c1cde67b-23d7-4ca7-88cc-124df67e2599/Pitaya_dragon_gacha_animation-ezgif.com-webp-to-gif-converter.gif"/>
+<img src="https://static.wikia.nocookie.net/cookierunkingdom/images/6/60/Pitaya_dragon_illustration.png/revision/latest/scale-to-width-down/1000?cb=20230519211430" height="400"/>
 </p>
 
 <p align="center">
