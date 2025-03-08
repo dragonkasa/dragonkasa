@@ -11,6 +11,10 @@
 </p>
 
 <p align="center">
+also i'm neurodivergent sorry if i act dry or awkward or something
+</p>
+
+<p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/sheep.gif"/>
 </p>
 
