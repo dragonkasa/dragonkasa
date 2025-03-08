@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-also i'm neurodivergent sorry if i act dry or awkward or something
+<img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow2.gif"/> i'm neurodivergent sorry if i act dry or awkward or something <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow2.gif"/>
 </p>
 
 <p align="center">
@@ -28,3 +28,9 @@ also i'm neurodivergent sorry if i act dry or awkward or something
 <img src="https://pixelsafari.neocities.org/stamps/cloud.png"/> 
 </p>
 
+<p align="center">
+<img src="https://pixelsafari.neocities.org/blinkies/giveasmile.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/simplethings.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/teddybears2.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/makemesmile.gif"/>
+</p>
