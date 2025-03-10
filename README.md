@@ -1,4 +1,8 @@
 <p align="center">
+<img src="https://pixelsafari.neocities.org/buttons/bestviewedcomp.gif"/>
+</p>
+
+<p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/bluestarribbon2.gif"/>
 </p>
 
