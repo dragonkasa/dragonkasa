@@ -17,6 +17,9 @@
 <p align="center">
 <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow2.gif"/> i'm neurodivergent sorry if i act dry or awkward or something <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/yellow2.gif"/>
 </p>
+<p align="center">
+<img src="https://pixelsafari.neocities.org/favicon/nature/star/star32.gif"/> neocities in progress <img src="https://pixelsafari.neocities.org/favicon/nature/star/star32.gif"/>
+</p>
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/sheep.gif"/>
