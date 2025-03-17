@@ -17,7 +17,7 @@
 <img src="https://64.media.tumblr.com/a65629d57cf033a532a981d9e96ba4c9/fe33a9fe02b3f8cb-80/s75x75_c1/32d3f61df17e6de8fdeac9cb4668159459125233.pnj" height="30"/> <img src="https://64.media.tumblr.com/7ff7ca74f3fda2b5c6bded287255cb69/c4372e8d0b74cc83-7f/s75x75_c1/620a99b65283ad1c59d13bf27b94caa496dbdcff.pnj" height="30"/>
 </p>
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/nature/storm3.gif"/> i'm neurodivergent very sorry if i act dry or awkward or something i usually only emote <img src="https://pixelsafari.neocities.org/favicon/nature/storm3.gif"/>
+<img src="https://pixelsafari.neocities.org/favicon/nature/storm3.gif"/> i'm neurodivergent very sorry if i act dry or awkward or something i usually only emote also i'm offtab a lot so excuse me if i don't answer <img src="https://pixelsafari.neocities.org/favicon/nature/storm3.gif"/>
 </p>
 <p align="center">
 <img src="https://pixelsafari.neocities.org/favicon/animals/other/lion2.gif"/> neocities in progress <img src="https://pixelsafari.neocities.org/favicon/animals/other/lion2.gif"/>
