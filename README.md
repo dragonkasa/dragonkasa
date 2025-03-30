@@ -3,24 +3,24 @@
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/03965d5de257dc7d36cdf835dfc0c909/f14a73274c031125-fd/s500x750/17db6669ef3de321abf94ea51070be555d15e324.pnj"/>
+<img src="https://64.media.tumblr.com/ce9417aa9d4517f38909b838ea12c9c6/50c11b3a3f8a415f-b8/s500x750/716b9146f1706b6b8ffd1ef60dc9f3aecbd7d5d3.pnj"/>
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/9shnfu.gif" height="40"/><img src="https://files.catbox.moe/ujrb64.png" height="300"/><img src="https://files.catbox.moe/1a3ovv.webp" height="40"/>
+<img src="https://64.media.tumblr.com/b8624b87c0884be2e7df9af15d108790/c51769d468e56c07-16/s75x75_c1/6687f613ef9ddb81ca0817a5d1f114487f271698.gifv" height="40"/><img src="https://files.catbox.moe/wpdsq8.webp" height="300"/><img src="https://pixelsafari.neocities.org/favicon/food/drink/teapot2.gif" height="40"/>
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/7456e4182b3dd82d860e75f9d8496f84/d45a7cefaf9b697c-c1/s500x750/76b67aa6104da43cdae1808eecff2f36e7b062f0.gifv"/>
+<img src="https://pixelsafari.neocities.org/dividers/biscuits.gif"/>
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/a65629d57cf033a532a981d9e96ba4c9/fe33a9fe02b3f8cb-80/s75x75_c1/32d3f61df17e6de8fdeac9cb4668159459125233.pnj" height="30"/> <img src="https://64.media.tumblr.com/7ff7ca74f3fda2b5c6bded287255cb69/c4372e8d0b74cc83-7f/s75x75_c1/620a99b65283ad1c59d13bf27b94caa496dbdcff.pnj" height="30"/>
 </p>
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/nature/storm3.gif"/> i'm neurodivergent very sorry if i act dry or awkward or something i usually only emote also i'm offtab a lot so excuse me if i don't answer <img src="https://pixelsafari.neocities.org/favicon/nature/storm3.gif"/>
+<img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/> i'm neurodivergent very sorry if i act dry or awkward or something i usually only emote also i'm offtab a lot so excuse me if i don't answer <img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/>
 </p>
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/animals/other/lion2.gif"/> neocities in progress <img src="https://pixelsafari.neocities.org/favicon/animals/other/lion2.gif"/>
+<img src="https://64.media.tumblr.com/5799526f5c06e5aeb7e091bff5954286/7ee6e5e621b1f8b9-1d/s75x75_c1/27a3f24785cebce97aa22c89043f742da88d3756.gifv"/> neocities in progress <img src="https://64.media.tumblr.com/c9380edd519d6a559d6368b320ed105f/7ee6e5e621b1f8b9-11/s75x75_c1/ff407f3d02a8bb96df668edb36c53d715592d0f4.gifv"/>
 </p>
 
 <p align="center">
@@ -28,16 +28,16 @@
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/qdu1me.webp" height="57"/>
-<img src="https://64.media.tumblr.com/8dcfe8921f3b7945ebfecfdf2f00cd07/4153ded63fb49f50-b6/s250x400/2fd28fa4a335f0d109bb343760b67ece7ca1c537.pnj"/>
-<img src="https://64.media.tumblr.com/c7dbec99d4eb53ba9c98feff011e4044/2e85574ebe4afb42-2c/s250x400/452e2c09ae167111fc642ab355511c9047e17c1c.gifv"/>
-<img src="https://pixelsafari.neocities.org/stamps/more/bacon.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/istillsleepwithplush.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/cloud.png"/>
 <img src="https://64.media.tumblr.com/65d6ebd16189b4ce977b8f99932041cf/0ddd29f0cf8a4f58-4c/s100x200/6850654cb4780388faca0214b24e5b127833b828.gifv"/>
-<img src="https://64.media.tumblr.com/07254ae16f48ada17792683b13d1ee6f/4153ded63fb49f50-43/s250x400/01af87650383e5b8d48938f11644509c0b19776f.pnj"/>
-<img src="https://files.catbox.moe/wvn05a.webp" height="57"/> 
+<img src="https://pixelsafari.neocities.org/stamps/more/bacon.png"/>
+<img src="https://64.media.tumblr.com/49157f7fbe93d905e3ecaf2097665537/314f42d5f100d6d0-47/s100x200/2ddd7bafe8797907daac7fc68806262fb3517f23.gifv"/>
+<img src="https://64.media.tumblr.com/a094c1c79c03f040e9baf43b9b7cf75a/2deb1afcc85895a3-9b/s100x200/84291ae86e8dfcc6a25303822a88a19e6f241448.pnj"/>
+<img src="https://files.catbox.moe/qxqyzz.png"/> 
 </p>
 
-<p align="center"> <img src="https://64.media.tumblr.com/7987cbc06d2a6e8267897ab3b6f9fdc8/4153ded63fb49f50-ad/s250x400/092ff5b3738388b944e836671700e3ef4760dd66.gifv"/>
+<p align="center"> <img src="https://64.media.tumblr.com/27e2b6c5cc5a975e072eadaa4a7a93e6/8714a89751b5c4f4-af/s100x200/741d0c67eab7d8beeb1680074f22d5eadc99543e.pnj"/>
 </p>
 
 <p align="center">
