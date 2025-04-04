@@ -24,7 +24,11 @@
 </p>
 
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/animals/ungulate/horse8.gif"/> i like clotted cream cookie a normal amount <img src="https://pixelsafari.neocities.org/favicon/animals/ungulate/horse8.gif"/>
+<img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/> i like clotted cream cookie a normal amount <img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/>
+</p>
+
+<p align="center">
+〰꒰ <img src="https://files.catbox.moe/fvbcuf.png"/> <img src="https://files.catbox.moe/ubwaby.png"/> <img src="https://files.catbox.moe/g3rpl8.png"/> <img src="https://files.catbox.moe/aw0e5u.png"/> <img src="https://files.catbox.moe/sqnqnm.png"/> ꒱〰
 </p>
 
 <p align="center">
