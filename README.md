@@ -28,7 +28,7 @@
 </p>
 
 <p align="center">
-〰꒰ <img src="https://files.catbox.moe/fvbcuf.png"/> <img src="https://files.catbox.moe/ubwaby.png"/> <img src="https://files.catbox.moe/g3rpl8.png"/> <img src="https://files.catbox.moe/aw0e5u.png"/> <img src="https://files.catbox.moe/sqnqnm.png"/> ꒱〰
+〰꒰ <img src="https://files.catbox.moe/fvbcuf.png"/> <img src="https://files.catbox.moe/ubwaby.png"/> <img src="https://files.catbox.moe/g3rpl8.png"/> <img src="https://files.catbox.moe/sqnqnm.png"/> <img src="https://files.catbox.moe/aw0e5u.png"/> ꒱〰
 </p>
 
 <p align="center">
