@@ -16,6 +16,11 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/a65629d57cf033a532a981d9e96ba4c9/fe33a9fe02b3f8cb-80/s75x75_c1/32d3f61df17e6de8fdeac9cb4668159459125233.pnj" height="30"/> <img src="https://64.media.tumblr.com/7ff7ca74f3fda2b5c6bded287255cb69/c4372e8d0b74cc83-7f/s75x75_c1/620a99b65283ad1c59d13bf27b94caa496dbdcff.pnj" height="30"/>
 </p>
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail6.gif"/> sign ata 🙏 <img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail6.gif"/>
+</p>
+
 <p align="center">
 <img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/> i'm neurodivergent very sorry if i act dry or awkward or something i usually only emote also i'm offtab a lot so whisper if you wanna say something <img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/>
 </p>
