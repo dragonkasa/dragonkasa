@@ -18,7 +18,11 @@
 </p>
 
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail6.gif"/> sign ata 🙏 <img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail6.gif"/>
+<img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail6.gif"/> sign ata while you're at it pretty pls with a cherry on top 🙏 <img src="https://pixelsafari.neocities.org/favicon/object/stationery/mail6.gif"/>
+</p>
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/> my name's spice i'm 15 years old and i like clotted cream cookie a normal amount <img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/>
 </p>
 
 <p align="center">
@@ -29,8 +33,9 @@
 </p>
 
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/> i like clotted cream cookie a normal amount <img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/>
+someone teach me how to make good skins oml
 </p>
+
 
 <p align="center">
 〰꒰ <img src="https://files.catbox.moe/fvbcuf.png"/> <img src="https://files.catbox.moe/ubwaby.png"/> <img src="https://files.catbox.moe/g3rpl8.png"/> <img src="https://files.catbox.moe/sqnqnm.png"/> <img src="https://files.catbox.moe/aw0e5u.png"/> ꒱〰
