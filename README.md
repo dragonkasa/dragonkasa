@@ -37,7 +37,7 @@
 </p>
 
 <p align="center">
-someone teach me how to make good skins oml
+read the cookie odyssey NOW
 </p>
 
 
