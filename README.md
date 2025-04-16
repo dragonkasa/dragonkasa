@@ -7,6 +7,10 @@
 </p>
 
 <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Crimson+Text&size=17&pause=1000&color=5C938F&center=true&vCenter=true&width=435&lines=Would+you+like+to+hear+about+the+new+world+I'm+dreaming+of..%3F" alt="Typing SVG" /></a>
+</p>
+
+<p align="center">
 <img src="https://64.media.tumblr.com/b8624b87c0884be2e7df9af15d108790/c51769d468e56c07-16/s75x75_c1/6687f613ef9ddb81ca0817a5d1f114487f271698.gifv" height="40"/><img src="https://files.catbox.moe/wpdsq8.webp" height="300"/><img src="https://pixelsafari.neocities.org/favicon/food/drink/teapot2.gif" height="40"/>
 </p>
 
