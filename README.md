@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-<img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/> my name's spice i'm 15 years old and i like clotted cream cookie a normal amount (literally his biggest kin) (LITERALLY him if his composure was weaker) <img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/>
+<img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/> my name's spice i'm 15 years old and i like clotted cream cookie a normal amount (literally his biggest kin) <img src="https://pixelsafari.neocities.org/favicon/food/sweet/cookie15.gif"/>
 </p>
 
 <p align="center">
