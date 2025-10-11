@@ -30,7 +30,7 @@
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/> i'm autistic very sorry if i act dry or awkward or something i usually only emote also i'm offtab a lot so whisper if you wanna say something <img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/>
+<img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/> very sorry if i act dry or awkward or something i usually only emote also i'm offtab a lot so whisper if you wanna say something i promise i check back frequently <img src="https://64.media.tumblr.com/bb3b0485a238a47a12749ebb0d103860/7ee6e5e621b1f8b9-23/s75x75_c1/91366eee5599745ec0c7f80808a478561b3a1af3.gifv"/>
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/5799526f5c06e5aeb7e091bff5954286/7ee6e5e621b1f8b9-1d/s75x75_c1/27a3f24785cebce97aa22c89043f742da88d3756.gifv"/> neocities in progress <img src="https://64.media.tumblr.com/c9380edd519d6a559d6368b320ed105f/7ee6e5e621b1f8b9-11/s75x75_c1/ff407f3d02a8bb96df668edb36c53d715592d0f4.gifv"/>
