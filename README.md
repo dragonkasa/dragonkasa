@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/b8624b87c0884be2e7df9af15d108790/c51769d468e56c07-16/s75x75_c1/6687f613ef9ddb81ca0817a5d1f114487f271698.gifv" height="40"/><img src="https://files.catbox.moe/wpdsq8.webp" height="300"/><img src="https://pixelsafari.neocities.org/favicon/food/drink/teapot2.gif" height="40"/>
+<img src="https://64.media.tumblr.com/b8624b87c0884be2e7df9af15d108790/c51769d468e56c07-16/s75x75_c1/6687f613ef9ddb81ca0817a5d1f114487f271698.gifv" height="40"/><img src="https://file.garden/aPtwBU9PkXWKuLPu/Untitled386_20250330031810.webp" height="300"/><img src="https://pixelsafari.neocities.org/favicon/food/drink/teapot2.gif" height="40"/>
 </p>
 
 <p align="center">
