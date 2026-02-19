@@ -14,7 +14,9 @@
 <img src="https://file.garden/aPtwBU9PkXWKuLPu/bca02cd2-f511-400f-b9ec-625dd988dda0-ezgif.com-effects.gif"/>
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/lbuc4r.png" height="30"/> <img src="https://files.catbox.moe/yc2u56.png" height="30"/>
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31jxnb6efslil6sxksut2gbo7qee&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false">
+  </a>
 </p>
 
 <p align="center">
