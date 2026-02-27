@@ -43,7 +43,7 @@ read the cookie odyssey NOW (i'm still very much not normal about the creme repu
 </p>
 
 <p align="center">
-<img src="https://file.garden/aPtwBU9PkXWKuLPu/nm436.gif"/>
+<img src="https://file.garden/aPtwBU9PkXWKuLPu/201940mtopea3k7e.gif"/>
 </p>
 
 <p align="center">
