@@ -35,10 +35,6 @@
 </p>
 
 <p align="center">
-read the cookie odyssey NOW (i'm still very much not normal about the creme republic don't worry)
-</p>
-
-<p align="center">
 <img src="https://files.catbox.moe/hn8k3b.png"/>
 </p>
 
