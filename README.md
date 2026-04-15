@@ -30,12 +30,9 @@
 <p align="center">
 <img src="https://file.garden/aPtwBU9PkXWKuLPu/star108.gif"/> very sorry if i act dry or awkward or something also i'm offtab a lot so whisper if you wanna say something i promise i check back frequently overall don't worry about me i'm just kinda chilling there i'm too shy to go up to anybody😭😭<img src="https://file.garden/aPtwBU9PkXWKuLPu/star108.gif"/>
 </p>
-<p align="center">
-<img src="https://file.garden/aPtwBU9PkXWKuLPu/tumblr_m2tm5gBqwc1qb1380.gif"/> neocities in progress <img src="https://file.garden/aPtwBU9PkXWKuLPu/tumblr_m2tm5gBqwc1qb1380.gif"/>
-</p>
 
 <p align="center">
-<img src="https://files.catbox.moe/hn8k3b.png"/>
+<img src="https://file.garden/aPtwBU9PkXWKuLPu/ezgif.com-resikyukyukyukyu"/>
 </p>
 
 <p align="center">
