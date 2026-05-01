@@ -36,10 +36,6 @@
 </p>
 
 <p align="center">
-<img src="https://file.garden/aPtwBU9PkXWKuLPu/201940mtopea3k7e.gif"/>
-</p>
-
-<p align="center">
 <img src="https://file.garden/aPtwBU9PkXWKuLPu/pinkskulls.gif"/>
 </p>
 
