@@ -28,10 +28,6 @@
 </p>
 
 <p align="center">
-<img src="https://file.garden/aPtwBU9PkXWKuLPu/star108.gif"/> very sorry if i act dry or awkward or something also i'm offtab a lot so whisper if you wanna say something i promise i check back frequently overall don't worry about me i'm just kinda chilling there i'm too shy to go up to anybody😭😭<img src="https://file.garden/aPtwBU9PkXWKuLPu/star108.gif"/>
-</p>
-
-<p align="center">
 <img src="https://file.garden/aPtwBU9PkXWKuLPu/ezgif.com-resikyukyukyukyu"/>
 </p>
 
